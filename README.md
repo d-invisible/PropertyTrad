@@ -6,7 +6,7 @@ SEAMLESS PROPERTY TRADING
 
 
 
-Buy <-> Sell |Flats|Plots|House|
+Buy <-> Sell   |Flats|Plots|House|
 
 www.switchonline.co.in
 
